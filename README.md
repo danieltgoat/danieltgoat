@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @danieltgoat
+- 👋 Hi, I’m @DanielNavarro and I am 15 years old
 - 👀 I’m interested in  talk to people
 
 <!---
